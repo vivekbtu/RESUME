@@ -7,4 +7,5 @@ This is latest and updated resume
 
 <!-- [Vivek_Gupta_Resume.pdf](https://github.com/vivekbtu/RESUME/files/10417154/Vivek_Gupta_Resume.pdf) -->
 
-[Vivek_Gupta_Resume.pdf](https://github.com/vivekbtu/RESUME/files/11284898/Vivek_Gupta_Resume.pdf)
+[Vivek_Gupta_Resume.pdf](https://github.com/vivekbtu/RESUME/files/11951159/Vivek_Gupta_Resume.pdf.pdf)
+
